@@ -7,6 +7,6 @@
 </p>
 
 <p align="center">
-  <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>
+  <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>⠀
   <a href="https://github.com/title-town">title-town</a> ty! ♡⠀⠀
 </p>
