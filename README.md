@@ -1,2 +1,5 @@
-<img width="828" height="810" alt="image" src="https://github.com/user-attachments/assets/1a615f10-3665-4ca6-a4cc-fd73e277845e" />
+<img width="1544" height="1521" alt="image" src="https://github.com/user-attachments/assets/8c744165-8f90-406a-b5f1-af9a395a1f48" />
+<div align="center" style="color:#b07cc8; font-weight: bold;">
+  im still working on this gulps, but image made by me ^_^
+</div>
 
