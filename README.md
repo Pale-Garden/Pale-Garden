@@ -1,5 +1,8 @@
-<img width="1544" height="1521" alt="image" src="https://github.com/user-attachments/assets/8c744165-8f90-406a-b5f1-af9a395a1f48" />
-<div align="center" style="color:#b07cc8; font-weight: bold;">
-  im still working on my github , but image made by me
+<img width="1832" height="1138" alt="image" src="https://github.com/user-attachments/assets/b78fb065-0dd8-4024-b973-2a5738ec36e3" />
+<div align="center" style="color:#b07cc8;  font-weight: bold;">
+  " I wish you were here to see it. I wish you didnt try and stop me so we could enjoy it together. "
+</div>
+<div align="center" style="color:#b07cc8;  font-weight: bold;">
+  I swear ill make a proper github layout soon..
 </div>
 
