@@ -4,6 +4,6 @@
   " All the noise and Information, makes me want to close my eyes.  "
 </div>
 <div align="center" style="color:#b07cc8;  font-weight: bold;">
-  I swear ill make a proper github layout soon..
+  I miss honorable duo
 </div>
 
