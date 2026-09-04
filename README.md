@@ -4,6 +4,6 @@
   " All the noise and Information, makes me want to close my eyes.  "
 </div>
 <div align="center" style="color:#b07cc8;  font-weight: bold;">
-  Im passionate about Swight, but I deadas ignore the pvp and focus on any lore
+  Im passionate about Swight, but I deadass ignore the pvp and focus on any lore
 </div>
 
