@@ -1,6 +1,4 @@
-<img width="2057" height="1215" alt="image" src="https://github.com/user-attachments/assets/6b2e1ed2-7128-4405-8756-aba7d0b3b4a8" />
-<div align="center" style="color:#b07cc8;  font-weight: bold;">
-  " All the noise and Information, makes me want to close my eyes.  "
-</div>
+<img width="504" height="446" alt="IMG_7440" src="https://github.com/user-attachments/assets/c1ef9e0a-783a-4804-b324-3770c85a494c" />
+
 
 
