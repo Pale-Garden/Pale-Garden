@@ -11,7 +11,6 @@
   <p align="center">
         <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
         <a href="https://strongestduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
-        <a href="https://pronouns.cc/@ScarTattoo">Prns.cc</a> &nbsp;&nbsp; 
       </p>
       
 
