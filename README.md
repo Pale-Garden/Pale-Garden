@@ -1,7 +1,7 @@
 <p align="center">
   <img width="2048" alt="image-2bbb-gradientmap pro" src="https://github.com/user-attachments/assets/76d8f666-2cfe-42c4-a0e2-7981515c261c" />
 </p>
-<img width="495" alt="ezgif-2d75034944597efd" src="https://github.com/user-attachments/assets/13a3caec-7dad-40f0-8221-6905f4882608" align="left" />
+<img width="380" alt="ezgif-2d75034944597efd" src="https://github.com/user-attachments/assets/13a3caec-7dad-40f0-8221-6905f4882608" align="left" />
 
 
 
