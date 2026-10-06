@@ -7,7 +7,7 @@
 
 
 <p align="center">
-<img width="490" alt="SAYWALLHAHI" src="https://github.com/user-attachments/assets/9d54685a-4b2a-41a7-a3ce-263b1e919c05"
+<img width="380" alt="SAYWALLHAHI" src="https://github.com/user-attachments/assets/9d54685a-4b2a-41a7-a3ce-263b1e919c05"
   <p align="center">
         <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
         <a href="https://strongestduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
