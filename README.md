@@ -9,6 +9,7 @@
 <p align="center">
 <img width="380" alt="SAYWALLHAHI" src="https://github.com/user-attachments/assets/9d54685a-4b2a-41a7-a3ce-263b1e919c05"
   <p align="center">
+    <p align="center">
         <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
         <a href="https://strongestduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
         <a href="https://pronouns.cc/@BugBear">Prns.cc</a> &nbsp;&nbsp; 
@@ -24,7 +25,7 @@
 $${\color{#476186}"Doesn't  \space \color{#597192}matter \space \color{#6c819e}how \space \color{#7e90aa}my \space \color{#91a0b6}moments  \space \color{#a3b0c3}were  \space \color{#b5c0cf}defined"}$$
 $${\color{#7e90aa}"Doesn't  \space \color{#91a0b6}matter \space \color{#a3b0c3}how  \space \color{#b5c0cf}I \space \color{#c8d0db}fought \space \color{#dadfe7}to  \space \color{#edeff3}stay  \space \color{#ffffff}alive"}$$
 $${\color{#7e90aa}They \space \color{#91a0b6}Will \space \color{#a3b0c3}Bury \space \color{#b5c0cf}Me \space \color{#c8d0db}A\space \color{#dadfe7}Women}$$
-<p align="center">
+<p align="left">
 
 
 
