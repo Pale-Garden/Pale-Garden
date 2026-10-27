@@ -72,16 +72,16 @@
 <br>
 
 <a href="YOUR_LINK_1">
-<img width="150" alt="blue tige" src="https://github.com/user-attachments/assets/696c22ce-eeb1-40cb-a334-a90237ab63d0" />
+<img width="120" alt="blue tige" src="https://github.com/user-attachments/assets/696c22ce-eeb1-40cb-a334-a90237ab63d0" />
 
 </a>
 <a href="YOUR_LINK_2">
-<img width="150" alt="blue honor" src="https://github.com/user-attachments/assets/0815aecd-1d0b-4976-a0c9-24221f09d847" />
+<img width="120" alt="blue honor" src="https://github.com/user-attachments/assets/0815aecd-1d0b-4976-a0c9-24221f09d847" />
 
 
 </a>
 <a href="YOUR_LINK_3">
-<img width="150" alt="lue cat" src="https://github.com/user-attachments/assets/717b6ea4-4d78-454f-95af-66158f94b1af" />
+<img width="120" alt="lue cat" src="https://github.com/user-attachments/assets/717b6ea4-4d78-454f-95af-66158f94b1af" />
 
 </a>
 
