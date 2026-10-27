@@ -7,7 +7,7 @@
 <tr>
 <td width="52%" align="middle" valign="Middle">
 
-## C+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤGift me Swight skins I beg
+## Sleepy / Swight  ' He / ItㅤㅤㅤㅤㅤㅤChronically anxiousㅤㅤㅤㅤㅤㅤ
 
 <br>
 
@@ -45,7 +45,7 @@
 
 # ❝ You did what you had to do? you lied straight to my face. ❞
 
-*"Your not looking for a mentor, Im not looking for a friend."*
+*"You're not looking for a mentor, Im not looking for a friend."*
 
 </td>
 </tr>
@@ -57,7 +57,19 @@
 <tr>
 <td width="50%" align="center" valign="middle">
 
-<img width="1500" alt="awawbluemoe" src="https://github.com/user-attachments/assets/a7d4082c-cff1-40bd-9ab8-53bc6e923020" />
+<img width="2000" alt="awawbluemoe" src="https://github.com/user-attachments/assets/a7d4082c-cff1-40bd-9ab8-53bc6e923020" />
+
+
+</td>
+<td width="50%" align="center" valign="middle">
+  
+</p>
+        
+## C+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤGift me Swight skins I begㅤㅤㅤㅤㅤㅤㅤ
+
+<p align="left">
+  
+<br>
 
 <a href="YOUR_LINK_1">
 <img width="150" alt="blue tige" src="https://github.com/user-attachments/assets/696c22ce-eeb1-40cb-a334-a90237ab63d0" />
@@ -70,8 +82,20 @@
 </a>
 <a href="YOUR_LINK_3">
 <img width="150" alt="lue cat" src="https://github.com/user-attachments/assets/717b6ea4-4d78-454f-95af-66158f94b1af" />
+
 </a>
 
+</td>
+</tr>
+</table>
+
+<br>
+
+</div>
+
+</p>
+
+</td>
   <p align="center">
         <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
         <a href="https://honorableduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
