@@ -1,36 +1,91 @@
-<p align="center">
-  <img width="2048" alt="image-2bbb-gradientmap pro" src="https://github.com/user-attachments/assets/76d8f666-2cfe-42c4-a0e2-7981515c261c" />
-</p>
-<img width="400" alt="ezgif-2d75034944597efd" src="https://github.com/user-attachments/assets/13a3caec-7dad-40f0-8221-6905f4882608" align="left" />
+
+<div align="center">
+
+<br>
+
+<table width="100%">
+<tr>
+<td width="52%" align="middle" valign="Middle">
+
+## C+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤGift me Swight skins I beg
+
+<br>
+
+<a href="YOURLINK_1">
+<img width="120" alt="hothothotfire" src="https://github.com/user-attachments/assets/af1e9127-327e-49a8-bd19-aea063000030" />
+
+</a>
+<a href="YOURLINK_2">
+<img width="120" alt="hollowpurple" src="https://github.com/user-attachments/assets/7688feb8-acaa-4057-9326-46f37a806b0f" />
+
+</a>
+<a href="YOURLINK_3">
+<img width="120" alt="blue sworc" src="https://github.com/user-attachments/assets/2a184a23-40c0-4979-89ed-eea43ad8c55d" />
 
 
+</a>
+
+</td>
+<td width="48%" align="center" valign="middle">
+
+<img width="1500" alt="imsoblue" src="https://github.com/user-attachments/assets/5cd5fa73-681b-44ef-b96a-bf821b8b6533" />
+
+<div align="center">
+
+</td>
+</tr>
+</table>
+
+<br>
+
+<!-- CENTER QUOTE BOX -->
+<table width="80%" border="2" cellpadding="18">
+<tr>
+<td align="center">
+
+# ❝ You did what you had to do? you lied straight to my face. ❞
+
+*"Your not looking for a mentor, Im not looking for a friend."*
+
+</td>
+</tr>
+</table>
+
+<br>
+
+<table width="100%">
+<tr>
+<td width="50%" align="center" valign="middle">
+
+<img width="1500" alt="awawbluemoe" src="https://github.com/user-attachments/assets/a7d4082c-cff1-40bd-9ab8-53bc6e923020" />
+
+<a href="YOUR_LINK_1">
+<img width="150" alt="blue tige" src="https://github.com/user-attachments/assets/696c22ce-eeb1-40cb-a334-a90237ab63d0" />
+
+</a>
+<a href="YOUR_LINK_2">
+<img width="150" alt="blue honor" src="https://github.com/user-attachments/assets/0815aecd-1d0b-4976-a0c9-24221f09d847" />
 
 
-<p align="center">
-<img width="380" alt="SAYWALLHAHI" src="https://github.com/user-attachments/assets/9d54685a-4b2a-41a7-a3ce-263b1e919c05"
+</a>
+<a href="YOUR_LINK_3">
+<img width="150" alt="lue cat" src="https://github.com/user-attachments/assets/717b6ea4-4d78-454f-95af-66158f94b1af" />
+</a>
+
   <p align="center">
-    <p align="center">
         <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
         <a href="https://honorableduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
         <a href="https://pronouns.cc/@BugBear">Prns.cc</a> &nbsp;&nbsp; 
       </p>
-      
 
- $${\color{#c7d3e3}C+H \space \color{#c7d3e3}Freely \space \color{#c7d3e3}'   \space \color{#c7d3e3}Minor}$$
-  $${\color{#b9c8dd}Usually\space \color{#809cc1}offtab \space \color{#809cc1}so  \space \color{#b9c8dd}Whisper   \space \color{#809cc1}to   \space \color{#809cc1}Interact }$$
-   $${\color{#302871}──────── \space \color{#5e5890}──────── }$$
-   $${\color{#7291ba}DNC \space \color{#8ea7c8}or \space \color{#7291ba}Inspo  \space \color{#8ea7c8}unless \space \color{#7291ba}friends}$$
-  $${\color{#aabdd6}I\space \color{#aabdd6}hide\space \color{#aabdd6}and  \space \color{#aabdd6}block  \space \color{#aabdd6}freely }$$
-  $${\color{#ffffff}✦}$$  
-$${\color{#476186}"Doesn't  \space \color{#597192}matter \space \color{#6c819e}how \space \color{#7e90aa}my \space \color{#91a0b6}moments  \space \color{#a3b0c3}were  \space \color{#b5c0cf}defined"}$$
-$${\color{#7e90aa}"Doesn't  \space \color{#91a0b6}matter \space \color{#a3b0c3}how  \space \color{#b5c0cf}I \space \color{#c8d0db}fought \space \color{#dadfe7}to  \space \color{#edeff3}stay  \space \color{#ffffff}alive"}$$
-<p align="left">
+</a>
 
+</td>
+</tr>
+</table>
+
+<br>
+
+</div>
 
 
-
-
-<br clear="left" />
-<p align="center">
-  <img width="2048" alt="image-6ff9-gradientmap pro" src="https://github.com/user-attachments/assets/9004f669-074b-44f6-ac48-b94c51df5e08" />
-</p>
