@@ -7,8 +7,13 @@
 <tr>
 <td width="52%" align="middle" valign="Middle">
 
-## Sleepy / Swight  ' He / ItㅤㅤㅤㅤㅤㅤChronically anxiousㅤㅤㅤㅤㅤㅤ
+## ㅤㅤSleepy / Swight  ' He / ItㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤChronically anxiousㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
+  <p align="center">
+        <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
+        <a href="https://honorableduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
+        <a href="https://pronouns.cc/@BugBear">Prns.cc</a> &nbsp;&nbsp; 
+      </p>
 <br>
 
 <a href="YOURLINK_1">
@@ -65,8 +70,7 @@
   
 </p>
         
-## C+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤGift me Swight skins I begㅤㅤㅤㅤㅤㅤㅤ
-
+## ㅤㅤC+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤㅤGift me Swight skins I begㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
   
 <br>
@@ -96,11 +100,6 @@
 </p>
 
 </td>
-  <p align="center">
-        <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
-        <a href="https://honorableduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
-        <a href="https://pronouns.cc/@BugBear">Prns.cc</a> &nbsp;&nbsp; 
-      </p>
 
 </a>
 
