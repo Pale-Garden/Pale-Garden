@@ -7,8 +7,7 @@
 <tr>
 <td width="52%" align="middle" valign="Middle">
 
-## ㅤㅤSleepy / Swight  ' He / ItㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤChronically anxiousㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
+## ㅤㅤSleepy / Swight  ' He / ItㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤChronically anxiousㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   <p align="center">
         <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
         <a href="https://honorableduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
@@ -70,7 +69,7 @@
   
 </p>
         
-## ㅤㅤC+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤㅤGift me Swight skins I begㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+## ㅤㅤC+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤㅤㅤㅤGift me Swight skins I begㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
   
 <br>
