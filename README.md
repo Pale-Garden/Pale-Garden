@@ -67,7 +67,7 @@
         
 ## C+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤGift me Swight skins I begㅤㅤㅤㅤㅤㅤㅤ
 
-<p align="left">
+<p align="center">
   
 <br>
 
