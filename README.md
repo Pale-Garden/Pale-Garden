@@ -16,15 +16,15 @@
       </p>
 <br>
 
-<a href="YOURLINK_1">
+<a href="Ashes And Blood">
 <img width="120" alt="hothothotfire" src="https://github.com/user-attachments/assets/af1e9127-327e-49a8-bd19-aea063000030" />
 
 </a>
-<a href="YOURLINK_2">
+<a href="Stand Proud">
 <img width="120" alt="hollowpurple" src="https://github.com/user-attachments/assets/7688feb8-acaa-4057-9326-46f37a806b0f" />
 
 </a>
-<a href="YOURLINK_3">
+<a href="Slay the demon">
 <img width="120" alt="blue sworc" src="https://github.com/user-attachments/assets/2a184a23-40c0-4979-89ed-eea43ad8c55d" />
 
 
@@ -75,16 +75,16 @@
   
 <br>
 
-<a href="YOUR_LINK_1">
+<a href="Friends and Foes">
 <img width="120" alt="blue tige" src="https://github.com/user-attachments/assets/696c22ce-eeb1-40cb-a334-a90237ab63d0" />
 
 </a>
-<a href="YOUR_LINK_2">
+<a href="Trash the rental">
 <img width="120" alt="blue honor" src="https://github.com/user-attachments/assets/0815aecd-1d0b-4976-a0c9-24221f09d847" />
 
 
 </a>
-<a href="YOUR_LINK_3">
+<a href="Bubblegum Bitch">
 <img width="120" alt="lue cat" src="https://github.com/user-attachments/assets/717b6ea4-4d78-454f-95af-66158f94b1af" />
 
 </a>
