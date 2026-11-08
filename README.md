@@ -70,7 +70,7 @@
   
 </p>
         
-## ㅤㅤC+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤㅤㅤㅤGift Swight/Spreen skins I begㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+## ㅤㅤC+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤㅤㅤㅤGift Swight/Spreen skins ty...ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
   
 <br>
