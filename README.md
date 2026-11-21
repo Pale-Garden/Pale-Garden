@@ -50,9 +50,9 @@
 <tr>
 <td align="center">
 
-# ❝ You did what you had to do? you lied straight to my face. ❞
+# ❝ But he doesn't know that I'm the goat, alright? ❞
 
-*"You're not looking for a mentor, Im not looking for a friend."*
+*"I will only break your pretty things, I will wring you dry of everything."*
 
 </td>
 </tr>
