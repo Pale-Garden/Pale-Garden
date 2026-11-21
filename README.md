@@ -11,7 +11,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   <p align="center">
         <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
-        <a href="https://honorableduo.atabook.org">Atabook</a> &nbsp;&nbsp; 
+        [<a href="https://Strongestduo.atabook.org">Atabook</a> &nbsp;&nbsp; ]
         <a href="https://pronouns.cc/@BugBear">Prns.cc</a> &nbsp;&nbsp; 
       </p>
 <br>
