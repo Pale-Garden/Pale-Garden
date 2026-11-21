@@ -7,7 +7,7 @@
 <tr>
 <td width="52%" align="middle" valign="Middle">
 
-## ㅤㅤSleepy / Swight  ' He / ItㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤChronically anxiousㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+## ㅤㅤㅤㅤSleepy / Swight  ' He / ItㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤChronically anxiousㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   <p align="center">
         <a href="https://psychropterous.straw.page">Strawpage</a> &nbsp;&nbsp; 
@@ -16,16 +16,15 @@
       </p>
 <br>
 
-<a href="Ashes And Blood">
-<img width="120" alt="hothothotfire" src="https://github.com/user-attachments/assets/af1e9127-327e-49a8-bd19-aea063000030" />
+
+<img width="120" alt="image" src="https://github.com/user-attachments/assets/be5ea74b-77a0-4c6f-a078-ad4898098bd6" />
 
 </a>
-<a href="Stand Proud">
-<img width="120" alt="hollowpurple" src="https://github.com/user-attachments/assets/7688feb8-acaa-4057-9326-46f37a806b0f" />
+<img width="120" alt="image" src="https://github.com/user-attachments/assets/8d3dafc0-8c98-4f0b-8514-8567f52247c0" />
 
 </a>
-<a href="Slay the demon">
-<img width="120" alt="blue sworc" src="https://github.com/user-attachments/assets/2a184a23-40c0-4979-89ed-eea43ad8c55d" />
+<img width="120" alt="image" src="https://github.com/user-attachments/assets/4cae563c-19b2-40f5-bf47-b0406e0644cd" />
+
 
 
 </a>
@@ -33,7 +32,10 @@
 </td>
 <td width="48%" align="center" valign="middle">
 
-<img width="1500" alt="imsoblue" src="https://github.com/user-attachments/assets/5cd5fa73-681b-44ef-b96a-bf821b8b6533" />
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/39569604-157a-4745-aa4d-634c2f261592" />
+
+
+
 
 <div align="center">
 
@@ -62,7 +64,7 @@
 <tr>
 <td width="50%" align="center" valign="middle">
 
-<img width="2000" alt="awawbluemoe" src="https://github.com/user-attachments/assets/a7d4082c-cff1-40bd-9ab8-53bc6e923020" />
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/0c798c97-411f-474f-8f5a-73ae34db703e" />
 
 
 </td>
@@ -70,22 +72,22 @@
   
 </p>
         
-## ㅤㅤC+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤㅤㅤㅤGift Swight/Spreen skins ty...ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+## ㅤㅤC+H freely ' minor ㅤㅤㅤㅤㅤㅤㅤ Whisper to Int, otherwise I wont respond ㅤㅤㅤㅤ  <a href="https://github.com/dvelowgraves">Strongest Duo maxxing</a> &nbsp;&nbsp; ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
   
 <br>
 
 <a href="Friends and Foes">
-<img width="120" alt="blue tige" src="https://github.com/user-attachments/assets/696c22ce-eeb1-40cb-a334-a90237ab63d0" />
+<img width="120" alt="image" src="https://github.com/user-attachments/assets/7e842e44-be29-4c00-b639-570c0405631b" />
 
 </a>
 <a href="Trash the rental">
-<img width="120" alt="blue honor" src="https://github.com/user-attachments/assets/0815aecd-1d0b-4976-a0c9-24221f09d847" />
-
+<img width="120" alt="image" src="https://github.com/user-attachments/assets/3f4f4033-af16-4f19-b144-d645f6348be9" />
 
 </a>
 <a href="Bubblegum Bitch">
-<img width="120" alt="lue cat" src="https://github.com/user-attachments/assets/717b6ea4-4d78-454f-95af-66158f94b1af" />
+<img width="120" alt="image" src="https://github.com/user-attachments/assets/1051643a-182f-4abe-87a8-980245c918dc" />
+
 
 </a>
 
@@ -110,5 +112,6 @@
 <br>
 
 </div>
+
 
 
